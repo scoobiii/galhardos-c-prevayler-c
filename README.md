@@ -22,7 +22,7 @@ Prazos de Navegação
 07/10: Integrações
 14/10: Entrega v1.0
 Comunicação a Bordo
-Contate o Capitão C por email ou no Twitter @capitaoc para quaisquer dúvidas! Reuniões semanais de acompanhamento serão realizadas.
+Contate o Capitão C por email ou no Twitter @trainsppotting para quaisquer dúvidas! Reuniões semanais de acompanhamento serão realizadas.
 
 Que os ventos soprem a nosso favor! Contem com o apoio da tripulação do Galhardos C para cumprir com êxito esta importante missão!
 
