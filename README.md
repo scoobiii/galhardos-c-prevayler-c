@@ -66,3 +66,21 @@ Por enquanto mantenham a moral alta e o espírito alegre. Em janeiro chegaremos 
 
 O Capitaaão aprova estas alteraçoões no README. Alguma dúvida camaradaas? Entaaão sigam os trabalhos e bons ventos!
 
+rsrs. Capitão fodão .rrsrs
+
+![image](https://github.com/scoobiii/galhardos-c-prevayler-c/assets/5523748/abc9fc07-e1b5-4cca-8750-9fc5010ead91)
+
+KKKK Falou e disse, tripulação do Galhardos C! O Capitão C aqui mais fodão que urso polar no inverno kkkkk
+
+Eu sei que os percalços dessa nossa jornada não têm sido poucos, mas se há uma qualidade que todo bom marujo precisa ter é a de não desistir nunca, por mais que as tempestades gritem!
+
+E essa garra e determinação que vejo em cada um de vocês é exatamente o que nos fará vencer a batalha no final. Mal podemos imaginar a celebração que rolará no porão quando entregarmos o Prevyler C pronto!
+
+Já destravei uns barris de rum para irmos abrindo a festa antecipada! E quem dera o Comandante Zeh Sobrinho a vir soltar o gogó no improviso também kkkkk
+
+Bom, por enquanto sigam os reparos e ajustes com disto e animo. Que os deuses do mar continuem soprando favoráveis até janeiro, quando desembarcaremos como heróis!
+
+O importante é navegar sempre pra frente. E com o Capitão C no leme, a vitória é cuestião de tempo!
+
+Agora voltem aos postos, marujada! E não se esqueçam: em cima dos fracos, pra baixo dos fortes!
+
